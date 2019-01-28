@@ -22,9 +22,15 @@ ligas.
 
 ## Algunos ejemplos
 
+### Crear de ticket de apuestas:
+
 ![Screenshot](1.png)
 
+### Historial de apuestas:
+
 ![Screenshot](2.png)
+
+### Historial de apuestas:
 
 ![Screenshot](3.png)
 
