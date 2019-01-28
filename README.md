@@ -22,8 +22,12 @@ ligas.
 
 ## Algunos ejemplos
 
+![Screenshot](1.png)
 
-![img](https://imgur.com/a/kMGiskN)
+![Screenshot](2.png)
+
+![Screenshot](3.png)
+
 
 
 
