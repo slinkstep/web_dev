@@ -18,6 +18,8 @@ ligas.
 - Sistema de control de apuestas [actualues e histórico]
 - Sistema de control de dinero [histórico]
 - Presentaciòn de estadísticas
+- Apuestas en vivo
+
 
 
 ## Algunos ejemplos
@@ -33,6 +35,15 @@ ligas.
 ### Historial de apuestas:
 
 ![Screenshot](3.png)
+
+
+### Variedad de apuestas
+
+
+![Screenshot](4.png)
+
+
+![Screenshot](5.png)
 
 
 
