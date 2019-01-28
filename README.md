@@ -36,12 +36,11 @@ ligas.
 
 ![Screenshot](3.png)
 
-
 ### Variedad de apuestas
-
 
 ![Screenshot](4.png)
 
+### Variedad de apuestas:
 
 ![Screenshot](5.png)
 
