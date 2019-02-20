@@ -29,3 +29,5 @@ Respecto a los retiros, no hay comisiones en los tres primeros reintegros semana
 La casa de apuestas Zamba.co pertenece a la sociedad colombiana conocida con el nombre de E’ Total Gaming. Ésta nace de unión de dos grandes compañías dentro del sector del juego. Por un lado, Vicca Group, que es una de las empresas más importantes dentro de la industria del juego presencial en Colombia y, por otro lado, Gaming1, una compañía belga con gran experiencia en el sector de las apuestas online.
 
 Actualmente Zamba.co ofrece servicios de apuestas deportivas y casino a través de una página web completamente autorizada por el gobierno colombiano. Es una propuesta nueva que tiene mucho que ofrecer. En esta reseña te explicamos todas las características y posibilidades de la casa de apuestas Zamba.co.
+
+s
