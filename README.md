@@ -10,4 +10,6 @@ Las apuestas deportivas significan apostar en un subconjunto de resultados de ev
 Históricamente, los corredores de apuestas operaban tiendas de apuestas, pero con la expansión de Internet, la mayoría de los corredores de apuestas operan en línea a través de sitios de apuestas. Se ofrece una variedad de oportunidades de apuestas, además
 de una alta gama de deportes e incluso deportes electrónicos (e-sports). Actualmente existen un sinfin de casas de apuestas que
 operan exclusivamente a través de internet y este parece ser un modelo de negocio que toma fuerza a medida que aumenta su
-despliegue a través de la web y las aplicaciones móviles. 
+despliegue a través de la web y las aplicaciones móviles.
+
+s
