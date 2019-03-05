@@ -6,11 +6,11 @@ Introducción al desarrollo web
 
 ![img](https://i.imgur.com/OEFRbNm.png)
 
-## Idea: 
+## Idea:
 La idea que se plantea desarrollar es el diseño de una página web
 dirigida a las apuestas deportivas. Se pretende ofrecer distintas
 modalidades de apuestas y una cantidad considerable de deportes y
-ligas. 
+ligas.
 
 ## Caracteristicas principales:
 
@@ -45,9 +45,4 @@ ligas.
 ![Screenshot](5.png)
 
 
-
-
-
-
-
-
+## VERSIÓN INICIAL DE LA IDEA
