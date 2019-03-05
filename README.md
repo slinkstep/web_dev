@@ -222,6 +222,12 @@ ofrecer una gama amplía de opciones para realizar las apuestas deportivas, cont
 
 - Desplegar el aplicativo web y llevar a cabo pruebas de funcionamiento.
 
+## 8. Modelo de negocio
+
+![Screenshot](lean_canvas.png)
+
+
+
 
 ## 10. Descripción de la aplicación
 
