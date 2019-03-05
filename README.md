@@ -6,7 +6,7 @@ una amplía oferta de sitios web dedicados al mundo de las apuesta deportivas, a
 
 ### Rivalo:
 
-![img](http://www.guncelgirisadresi.org/wp-content/uploads/2018/01/rivalo-logo-1.png)
+![img](https://feelinglucky.co/wp-content/uploads/rivalo-logo.png)
 
 La casa de apuestas y juego online Rivalo fue lanzada en 2013 gracias al empuje de 247 Sports Interactive B.V., una compañía registrada y con licencia de juego de Curaçao. Esta web, también conocida por su oferta de juegos de casino y azar, dispone de un amplio registro de apuestas y mercados de apuestas deportivas (un jugador tiene la opción de apostar en más de 22.000 opciones) organizadas en 25 grupos que incluye las principales modalidades deportivas, deportes virtuales, dardos, snooker, apuestas políticas y apuestas especiales. El único software es NetEnt, muy prestigioso, especialmente en juegos online, y que aporta lustre a la marca
 
@@ -30,4 +30,109 @@ La casa de apuestas Zamba.co pertenece a la sociedad colombiana conocida con el 
 
 Actualmente Zamba.co ofrece servicios de apuestas deportivas y casino a través de una página web completamente autorizada por el gobierno colombiano. Es una propuesta nueva que tiene mucho que ofrecer. En esta reseña te explicamos todas las características y posibilidades de la casa de apuestas Zamba.co.
 
-s
+Seguridad
+
+La casa de apuestas Zamba.co se toma muy enserio todos los aspectos relacionados con la seguridad y la protección de datos de sus clientes. Si no fuera así, no habría sido capaz de conseguir una de las licencias de juego expedidas por el gobierno de Colombia, más concretamente por la entidad Coljuegos.
+
+Por lo tanto, podemos decir alto y claro que la casa de apuestas Zamba.co es un portal de juego legal y seguro en el país. Prueba de ello son los sellos de certificación que se encuentran al pie de página de su web. Asimismo, si estás interesado, también puedes consultar el contrato de Coljuegos que se encuentra adjunto en la web de esta casa.
+
+Banca
+
+La casa de apuestas Zamba.co se asegura de que puedas depositar y retirar fondos de forma segura mediante diferentes modalidades de pago. Entre ellas se encuentran PayU, Efecty, Via Baloto o las tarjetas de crédito y débito Visa y MasterCard. Como podéis ver, muchos de estos métodos de pago están dirigidos al público colombiano. Asimismo, en esta casa de apuestas, la principal moneda para realizar cualquier tipo de operación son los pesos (COP).
+
+Elige la opción que mejor se adapte a ti y utilízala para depositar y retirar dinero sin riesgo. Por otro lado, si tienes alguna duda sobre el funcionamiento de estos métodos de pago no dudes en ponerte en contacto con el personal de Zamba.co.
+
+### Codere:
+
+![img](http://www.infoplay.info/fotos/noticias/2017/06/CODERE-Apuestas-ofrecera-en-Expojoc-160la-opcion-mas-atractiva-de-inversion-frente-a-sus-competidores.jpg)
+
+Codere es la casa de apuestas oficial del Real Madrid y eso le da mucho caché a esta marca. Se trata de una empresa nacional cuya sede se encuentra en Madrid y que cuenta tanto establecimientos físicos como una web de apuestas online. Codere es una marca totalmente legal en España, pues cuenta con la certificación de la DGOJ. Asimismo, su página web es una de las más completas del mercado, con una oferta de deportes difícilmente igualable entre la que se encuentran algunas modalidades que no tan frecuentes como por ejemplo las carreras de caballos, los e-Sports o la política.
+
+En este artículo vamos a realizar la reseña de Codere y para ello nos centraremos en sus características y servicios. De esta forma, podrás decidir por ti mismo si la casa de apuestas Codere se adapta a tus intereses.
+
+Seguridad
+
+La casa de apuestas Codere está autorizada en España por la Dirección General de Ordenación del Juego (DGOJ). Por lo tanto, se trata de un portal regulado y seguro. Además de disponer de la licencia de juego exigida para poder operar en España, esta casa también aplica todas las medidas de seguridad necesarias para poder ofrecer un entorno que fomente el juego responsable. Por este motivo, en la web Codere podrás encontrar algunas de las preguntas que debes hacerte si crees que puedes tener un problema con el juego y también algunos consejos para apostar de forma responsable. Por último, esta marca también permite solicitar la autoexclusión y recomienda algunas páginas de ayuda online.
+
+Banca
+
+Existen dos formas de depositar y retirar fondos en la casa de apuestas Codere. Son las siguientes:
+
+Desde un local presencial: Si prefieres esta modalidad tendrás iniciar sesión en tu cuenta de jugador y seleccionar la opción ‘Depositar en local Codere’. Al hacerlo recibirás un código de barras que deberás presentar en el establecimiento para poder depositar o retirar tu dinero.
+
+A través de la web de Codere: Si prefieres esta alternativa, deberás iniciar sesión en tu cuenta de usuario y seleccionar la opción ‘Depositar’ y seleccionar el método de pago que prefieras. Entre los disponibles están las tarjetas de crédito, las transferencias bancarias, PayPal, Teleingreso y Paysafecard. Deberás tener en cuenta que no todos los métodos de pago permitidos para depositar online están también disponibles para el cobro de tus retiros. De hecho, los únicos métodos que permiten retirar dinero son las transferencias, las tarjetas Visa, PayPal y Hal-Cash.
+
+### Sportium:
+
+![img](https://www.casas-de-apuestas.net/wp-content/uploads/2016/10/sportium5.png)
+
+Sportium se ha consolidado como una de las casas de apuestas deportivas más conocidas en España. Apareció para el gran público en el año 2013 tras el acuerdo de la empresa española Cirsa y Ladbrokes, una de las firmas con más solera del Reino Unido. El gran crecimiento se debe en parte a la calidad que ofrece: un completo mercado de apuestas deportivas, interesantes bonos de bienvenida y una constante actualización de promociones vinculadas a eventos deportivos, sean puntuales o semanales. Sin olvidar el gran diseño y facilidad de navegación, tanto en web como en móvil.
+
+Se trata de una plataforma autorizada y regulada por la DGOJ, un organismo que pertenece al Ministerio de Hacienda español. Además, esta marca cuenta con su propio canal de televisión: Sportium TV, que se encuentra disponible para sus usuarios desde el año 2014. A través de éste podrás disfrutar de múltiples partidos y eventos deportivos retransmitidos en streaming. Solamente tendrás que haber realizado una apuesta durante ese día para poder disfrutar del canal de Sportium durante las siguientes 24 horas.
+
+Seguridad
+
+Sportium.es es una plataforma de apuestas online que está regulada por la DGOJ, un organismo que pertenece al Ministerio de Hacienda español. Por lo tanto, los jugadores que residan dentro del país podrán acceder a este portal de forma totalmente legal. La seguridad y confidencialidad de los jugadores está protegida en esta plataforma de acuerdo a la Ley de Protección de Datos de Carácter Personal de 1999. De esta forma, Sportium se compromete a tratar tu información personal de forma responsable. Asimismo, en la misma línea de promover una experiencia de juego segura y de calidad, esta casa de apuestas ha adoptado las siguientes medidas de prevención:
+
+-- Límites temporales y económicos
+-- Servicios de autoexclusión
+-- Consejos y fuentes de ayuda en el caso de necesidad
+-- Test de conductas adictivas al juego
+
+Sportium es miembro de ESSA (European Sports Security Association), una organización si ánimo de lucro encargada de la vigilancia de irregularidades y posibles casos de manipulación de apuestas y eventos.
+
+Banca
+
+Los métodos de pago más conocidos están presentes en esta casa de apuestas. Se pueden hacer depósitos mediante una transferencia bancaria, utilizando las tarjetas de crédito/débito Visa, Visa Electrón, Maestro y Master Card, a través de la tarjeta de prepago Paysafecard y mediante las e-wallets Paypal, Skrill y Neteller. La cantidad mínima aceptada es de 10€ y la cantidad máxima es de 10.000€. Excepto en el caso de las transferencias bancarias (2 días hábiles), el periodo efectivo de procesamiento de los depósitos es inmediato.
+
+Para retiros de ganancias, Sportium acepta tarjetas de crédito, los mismos monederos electrónicos, transferencias bancarias y la novedad de poder ir personalmente a uno de los cientos de establecimientos físicos de Sportium que están repartidos en todo el país. La cantidad máxima permitida en un retiro es de 5.000€ , pero se pueden hacer hasta tres al día: un total de 15.000€. En una tienda Sportium el límite es de 500€.
+
+### Wplay:
+
+![img](https://colombiacasino.co/wp-content/uploads/2018/02/wplay-1-1.jpg)
+
+WPlay.co es la casa de apuestas colombiana por excelencia. ¿Por qué? Porque es la más popular y además fue la primera en obtener la licencia otorgada por Coljuegos, la entidad reguladora de los juegos de azar y apuestas online en Colombia. Es decir, llegó la primera y lo aprovechó.
+
+Se trata de una casa de apuestas creada por colombianos para colombianos. Únicamente tiene licencia para operar en Colombia y solo acepta jugadores residentes en el país cafetero. Esto permite a WPlay.co ofrecer servicios prácticamente personalizados a los colombianos y una atención al cliente mucho más cercana de lo que suele ser normal en las casas de apuestas internacionales y globalizadas.
+
+Obviamente, esto no significa que solo se pueda apostar en competiciones colombianas, ni mucho menos. En WPlay.co se puede apostar en prácticamente todos los eventos deportivos del mundo y por supuesto, también en directo.
+
+Seguridad
+
+Como ya hemos comentado al principio WPlay.co tiene licencia para operar en Colombia otorgada por Coljuegos. Fue la primera en conseguirla, y ello implica que ha pasado todas las auditorias externas necesarias para garantizar de que se trata de una casa de apuestas totalmente segura.
+
+Además, está certificada por Placetopay, Payvalida, y Tucompra, sellos colombianos que aseguran que los métodos de pago usados por WPlay.co son totalmente seguros y fiables.
+
+Para terminar, hay que decir que la web cuenta con certificado de seguridad emitido por la empresa CloudFlare Inc ECC CA-2 lo que también garantiza la seguridad tanto de los usuarios como de los datos personales de estos. La web de WPlay.co ha sido creada en un entorno totalmente seguro.
+
+Banca
+
+El punto negativo de WPlay.co es que no dispone de métodos de pago electrónico. Únicamente es posible recargar dinero en la cuenta mediante Via Baloto o Efecty, es decir, para depositar dinero en la cuenta de WPlay.co hay que ir a uno de estos establecimientos e ingresar dinero en efectivo. Es 100% seguro, por supuesto, pero supone un problema para aquellos usuarios que no vivan cerca de uno de estos establecimientos
+
+
+### Luckia:
+
+![img](https://apuestasdolares.com/wp-content/uploads/2018/01/Logo_Luckia.es__APUESTAS_-01-1.jpg)
+
+Luckia es una de las casas de apuestas más conocidas en España gracias a su presencia publicitaria en eventos deportivos y televisión. Además, recientemente ha conseguido el Premio eGaming.es al mejor operador de juego online del mercado español. Aparte de su sector de casino y juegos de mesa, destaca principalmente por las apuestas deportivas online y en los locales que tiene repartido en todo el territorio nacional.
+
+Luckia Games S.A. está domiciliada en A Coruña (Galicia) y pertenece al grupo de juego y entretenimiento Egasa, compañía con más de 30 años de experiencia en el sector del gambling y restauración. Tiene licencia para prestación de servicios de juego de la Dirección General de la Ordenación del Juego (DGOJ) del Ministerio de Hacienda: desde 2012 para casino y juegos de mesa; y desde 2013 para explotación de apuestas deportivas.
+
+Seguridad
+
+Sin lugar a dudas, Luckia es una página que ofrece garantías para los jugadores. La empresa que ampara Egasa tiene prestigio en cuanto al servicio y calidad de sus productos. La casa de apuestas gallega está en el mercado al tener una licencia para apuestas y juego online de la DGOJ. Por tanto, cuenta con los sellos de 'Juego Seguro' y 'Jugar Bien'; un indicativo de que la empresa cumple con los estándares de control de juego, seguridad, autoexclusión, protección al jugador, protección al menor y que ofrece herramientas e información para todos aquellos que tienen problemas con el juego. En referencia a la autoexclusión, el sistema permite que puedas cerrar tu cuenta el tiempo estimado. Durante ese período no podrás usar tu cuenta.
+
+Luckia dispone de un sistema cifrado que protege tus datos personales y garantiza la confidencialidad de los mismos: información personal y datos bancarios. Es muy importante porque impide que terceras personas puedan acceder a información sensible. Todo lo referido al uso de datos de caracter personal cumple con la Ley Orgánica 15/1999 (actual LOPD).
+
+Banca
+
+La compañía ofrece una tabla con los métodos de pago disponibles para ingresos y retiros. En el primer caso, puedes dejar dinero en tu cuenta mediante tarjetas de crédito Visa y Master Card (importe mínimo de un euro); tarjeta prepago Paysafecard (importe mínimo de 5€); monederos electrónicos como Skrill Moneybookers y Paypal (importe 5€ ) y transferencias bancarias, con la condición de hacer un ingreso mínimo de 10€  y un proceso de depósito que no es inmediato (1-3 días laborales).
+
+Tanto las transferencias como los monederos son válidos para los reintegros si son cuentas españolas y si fueron usadas también para depósitos. Si la apuesta ha sido realizada mediante tarjeta de crédito o prepago hay que retirar mediante cuenta bancaria. El retiro mínimo permitido es de 10€; mientras que en los depósitos, los límites son de 600€ diarios, 1500€ semanales y 3000€ mensuales.
+
+### Valor agregado de la plataforma Slink Bets:
+
+- Sitio web 100% Colombiano y que se ajusta a la regulación vigente.
+- Contenido personalizado adapatado al contexto del país.
+- Transferencias y retiros electrónicos.
+- Ofrecimiento de aplicativo móvil.
