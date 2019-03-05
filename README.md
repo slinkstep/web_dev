@@ -11,4 +11,4 @@
 
 - [5]E. S.A.S., "WPlay.co crece 260% y se expandirá a apuestas de política y entretenimiento", Larepublica.co, 2019. [Online]. Available: https://www.larepublica.co/empresas/wplayco-crece-260-y-se-expandira-a-apuestas-de-politica-y-entretenimiento-2832476. [Accessed: 05- Mar- 2019].
 
-- [6]"ApuestasDeportivas24 | Las casas de apuestas más fiables 2019", Apuestasdeportivas24.com, 2019. [Online]. Available: https://apuestasdeportivas24.com. [Accessed: 05- Mar- 2019].
+- [6]"ApuestasDeportivas24 | Las casas de apuestas más fiables 2019", Apuestasdeportivas24.com, 2019. [Online]. Available: https://apuestasdeportivas24.com. [Accessed: 05- Mar- 2019]
